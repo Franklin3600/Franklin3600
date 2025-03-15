@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning Data Analytics
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me franklinogu@yahoo.com
+- Connect with me on [LinkedIn](https://www.linkedin.com/in/franklin-ogu-b02898129/)
 - 😄 Pronouns: He
 - ⚡ Fun fact: Love Solving Problems
 
